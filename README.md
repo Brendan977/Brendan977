@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Brendan977
+- 👀 I’m interested in the intersection of business trends and insights, complemented by proficient data anlysis.
+- 🌱 I’m currently learning to expand my skills in handling diverse datasets through the utilization of APIs.
+- 💞️ I’m looking to collaborate on any and all data-driven projects.
+- 📫 Feel free to contact me at btms977@gmail.com or visit my LinkedIn profile: https://www.linkedin.com/in/brendan-smith-23115s/ 
+- 😄 Pronouns: He/Him
+- ⚡ Fun Facts: I am a sports fanatic, firmly on Team Dog rather than Team Cats, and I love to play the guitar.
