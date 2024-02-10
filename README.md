@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on any and all data-driven projects.
 - 📫 Feel free to contact me at btms977@gmail.com or visit my LinkedIn profile: https://www.linkedin.com/in/brendan-smith-23115s/ 
 - 😄 Pronouns: He/Him
-- ⚡ Fun Facts: I am a sports fanatic, firmly on Team Dog rather than Team Cats, and I love to play the guitar.
+- ⚡ Fun Facts: I am a sports fanatic and I love to play the guitar.
