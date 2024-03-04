@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Brendan977
-- 👀 I’m interested in the intersection of business trends and insights, complemented by proficient data anlysis.
+- 👀 I’m interested in the intersection of business trends and insights, complemented by proficient data analysis.
 - 🌱 I’m currently learning to expand my skills in handling diverse datasets through the utilization of APIs.
 - 💞️ I’m looking to collaborate on any and all data-driven projects.
 - 📫 Feel free to contact me at btms977@gmail.com or visit my LinkedIn profile: https://www.linkedin.com/in/brendan-smith-23115s/ 
